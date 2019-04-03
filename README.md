@@ -1,0 +1,2 @@
+# banque-finance
+Salut VOTRE ATTENTION Nous sommes une structure qui est honnête, qui vient au secours des personnes qui ont vraiment besoin d'un Prêt, nous offrons 2.000 euros de prêt (€) à 50.000.000 euros (€) à toute personne capable de le rembourser avec intérêt au taux faible 2% Alors veuillez nous contacter par notre courrier si vous etes dans le besoin urgent.nous sommes en collaboration Avec la Banque PARIBAS de Paris et la Banque postale. Voici notre adresse microcredifinance5@gmail.com 
